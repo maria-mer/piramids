@@ -1,1 +1,1 @@
-# piramids
+# piramids-at-giza
